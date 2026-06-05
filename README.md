@@ -1,5 +1,6 @@
-## ◯ ☽ ◑ ● ◐ ❨ ◯
-<img width="640" height="360" alt="17806784067902405370082513304152" src="https://github.com/user-attachments/assets/d6d73e89-76a4-4c86-8327-af910dcad2fa" />
+##       ◯ ☽ ◑ ● ◐ ❨ ◯
+<img width="1280" height="720" alt="17806784480371572198113745780601" src="https://github.com/user-attachments/assets/d4b3c811-9944-424e-ab54-025a293e7963" />
+
 
 <!--
 **jellyfizzz/jellyfizzz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
