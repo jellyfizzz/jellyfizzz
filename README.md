@@ -2,6 +2,10 @@
 <img width="1280" height="720" alt="17806784480371572198113745780601" src="https://github.com/user-attachments/assets/d4b3c811-9944-424e-ab54-025a293e7963" />
 ♩　𓂃 " ᵢₘ ₛₜᵢₗₗ ₘₑ, bᵤₜ ᵢₛ ₜₕₐₜ ₒₖ ? "　𝜗ৎ
 
+ 𐂯◞ ꒰  star/mizuki ໑୧ ꒱ 🎀ྀིྀི
+⌒⌒ he ノ they ‹𝟹 ⸝⸝⸝
+⋮ 𐔌 mizuki kin ,, !!  🌸 ₍⑅ᐢ..ᐢ₎ 
+🍥 :: 𝘪 𝘸𝘦𝘭𝘤𝘰𝘮𝘦 𝙖𝙣𝙮𝙩𝙝𝙞𝙣𝙜 𝘢𝘴 𝘭𝘰𝘯𝘨 𝘢𝘴 𝘪𝘵'𝘴 𝘤𝘶𝘵𝘦 !!
 
 <!--
 **jellyfizzz/jellyfizzz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
