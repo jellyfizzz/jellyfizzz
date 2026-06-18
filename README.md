@@ -1,7 +1,8 @@
 ## ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔     
 ♩　𓂃 " ᵢₘ ₛₜᵢₗₗ ₘₑ, bᵤₜ ᵢₛ ₜₕₐₜ ₒₖ ? "　𝜗ৎ
+<img width="670" height="129" alt="17817807615877647303728874715935" src="https://github.com/user-attachments/assets/a4ce33f8-6c5a-4404-9aca-cc4e51faad88" />
 
-<img width="640" height="129" alt="17817803839735566510387492722881" src="https://github.com/user-attachments/assets/406e4ebf-ad6f-4eca-ab58-90a93f6c59ef" />
+
 
 
 <!--
