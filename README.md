@@ -1,7 +1,7 @@
 ## ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔     
  <img width="740" height="240" alt="17817807615877647303728874715935" src="https://github.com/user-attachments/assets/a4ce33f8-6c5a-4404-9aca-cc4e51faad88" />  
 
-<img width="1600" height="400" alt="17817820496525695238700443832189" src="https://github.com/user-attachments/assets/6af61753-860d-482b-8ffb-1b53df572b31" />
+<img width="1500" height="500" alt="Untitled437" src="https://github.com/user-attachments/assets/f67b40c0-eecb-4ead-8430-1e9005aed1cc" />
 
 
 
