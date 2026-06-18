@@ -1,7 +1,7 @@
 ## ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔     
 <img width="1280" height="720" alt="17806784480371572198113745780601" src="https://github.com/user-attachments/assets/d4b3c811-9944-424e-ab54-025a293e7963" />
 ♩　𓂃 " ᵢₘ ₛₜᵢₗₗ ₘₑ, bᵤₜ ᵢₛ ₜₕₐₜ ₒₖ ? "　𝜗ৎ
-<img width="225" height="225" alt="Untitled434" src="https://github.com/user-attachments/assets/4dd5166e-2f44-49f3-bd59-a64ccc046bfb" />
+
 
 <!--
 **jellyfizzz/jellyfizzz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
