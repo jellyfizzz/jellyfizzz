@@ -1,6 +1,4 @@
 ## ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔     
- <img width="2048" height="687" alt="608299030-c112fa1e-9aa1-4969-b442-857bcb0faf2c" src="https://github.com/user-attachments/assets/a9ac1260-0734-4d9d-be17-88ccb750b01f" />
-
  <img width="740" height="240" alt="17817807615877647303728874715935" src="https://github.com/user-attachments/assets/a4ce33f8-6c5a-4404-9aca-cc4e51faad88" />  
 
 
