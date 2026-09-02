@@ -1,8 +1,6 @@
 ## ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔     
 <img width="520" height="16" alt="image" src="https://github.com/user-attachments/assets/1d14cd73-b7da-471e-94d8-05d033d2d559" />
 
-  <img width="740" height="240" alt="17817807615877647303728874715935" src="https://github.com/user-attachments/assets/a4ce33f8-6c5a-4404-9aca-cc4e51faad88" />  
-
 
 <img width="99" height="56" alt="17839396007864410691002512214626" src="https://github.com/user-attachments/assets/497da1be-8761-4ba6-930a-7bb3faad95d2" />
 <img width="99" height="56" alt="1783945564632245495275161138118" src="https://github.com/user-attachments/assets/21e564ea-5279-4aa6-9b5a-52a5a6db0bc4" />
