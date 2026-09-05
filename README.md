@@ -1,6 +1,7 @@
 ## ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔     
 <img width="520" height="16" alt="image" src="https://github.com/user-attachments/assets/1d14cd73-b7da-471e-94d8-05d033d2d559" />
 
+ponytown' s mizuki + scaramouche
 
 
 <img width="99" height="56" alt="17839396007864410691002512214626" src="https://github.com/user-attachments/assets/497da1be-8761-4ba6-930a-7bb3faad95d2" />
