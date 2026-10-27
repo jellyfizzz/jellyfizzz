@@ -1,7 +1,7 @@
 ## ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔  
 <img width="734" height="272" alt="6681ee7eca4efe24c646911c085534d6" src="https://github.com/user-attachments/assets/93ac8a3c-eaea-44d0-abde-2c37b7e1141f" />
 
-𓎢𓎟𓎡 <a href="https://jellyfizzz.atabook.org/">ata</a> 𓏵 <a href="https://link">straw</a>
+𓎢𓎟𓎡 <a href="https://jellyfizzz.atabook.org/">ata</a> 𓏵 <a href="https://jellyfishsstarrysea.straw.page/">straw</a>
 
 <!--
 **jellyfizzz/jellyfizzz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
