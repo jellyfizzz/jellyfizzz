@@ -1,4 +1,6 @@
-## ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔  
+
+<img width="1520" height="259" alt="image" src="https://github.com/user-attachments/assets/183e732f-5ae3-41bd-83f6-e339e13e9021" />
+
 <p align="center">
 <img width="734" height="272" alt="6681ee7eca4efe24c646911c085534d6" src="https://github.com/user-attachments/assets/93ac8a3c-eaea-44d0-abde-2c37b7e1141f" />
 </p>
