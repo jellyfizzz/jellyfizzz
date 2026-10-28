@@ -6,6 +6,8 @@
 <p align="center">
 𓎢𓎟𓎡 <a href="https://jellyfizzz.atabook.org/">ata</a> 𓏵 <a href="https://jellyfishsstarrysea.straw.page/">straw</a>  𓎢𓎟𓎡
 </p>
+<img width="1850" height="1200" alt="image" src="https://github.com/user-attachments/assets/6c81d4a8-0268-47c4-9760-221df52446e0" />
+
 <!--
 **jellyfizzz/jellyfizzz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
